@@ -3,6 +3,8 @@
 
 ![image alt](https://github.com/jxckspxrrxw/jxckspxrrxw/blob/e202207d38d0d8a4f9927ae9b54dff7c8c25ed12/tumblr_e266a9a017bedb61f583f088ef1c0d7c_ae7adfc4_2048.png)
 
+![image alt](https://github.com/jxckspxrrxw/jxckspxrrxw/blob/157367a4b3b2e21953ae80f3efc94f663a804f85/Tumblr_l_231669342218394.webp)
+
 
 ![image alt](https://github.com/jxckspxrrxw/jxckspxrrxw/blob/e202207d38d0d8a4f9927ae9b54dff7c8c25ed12/0e5d4a2f18dac1679d4832125d44518b.jpg)
 # 🗝️ ⌢ . ꉂ *YO HO HO, A PIRATE'S LIFE FOR ME . .ᐟ.ᐟ*
@@ -60,6 +62,9 @@
 
 
 
+![image alt](https://github.com/jxckspxrrxw/jxckspxrrxw/blob/157367a4b3b2e21953ae80f3efc94f663a804f85/Tumblr_l_231593529581705.gif)
+
+![image alt](https://github.com/jxckspxrrxw/jxckspxrrxw/blob/157367a4b3b2e21953ae80f3efc94f663a804f85/Tumblr_l_231645735558768.webp)
 
 
 </div>
