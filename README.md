@@ -1,5 +1,10 @@
+
+
+<div align="center">
+
 # ⌢⌢ ,𝘽𝙍𝙄𝙉𝙂 𝙈𝙀 𝙏𝙃𝘼𝙏 𝙃𝙊𝙍𝙄𝙕𝙊𝙉 
-![Image](https://github.com/user-attachments/assets/ee87a546-2748-4320-8860-484065ad5726)
+----
+![Image alt](
 
 
 >
@@ -9,7 +14,7 @@
 
 
 
-
+</div>
 
 
 
