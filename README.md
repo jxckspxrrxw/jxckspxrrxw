@@ -2,7 +2,7 @@
 
 <div align="center">
 
-# ⌢⌢ ,𝘽𝙍𝙄𝙉𝙂 𝙈𝙀 𝙏𝙃𝘼𝙏 𝙃𝙊𝙍𝙄𝙕𝙊𝙉 
+# ︵ . YO HO YO HO A PIRATES LIFE FOR ME . 🌊 
 ----
 ![Image alt](
 
