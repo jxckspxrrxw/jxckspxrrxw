@@ -23,7 +23,7 @@
 
 𝙅𝙖𝙘𝙠 𝙎𝙥𝙖𝙧𝙧𝙤𝙬 ⟢ fictkin ⌢ . (and many more.)
 
-**@sethrxn** ,, on Discord . ADD ME !
+**@rev.vicar** ,, on Discord . ADD ME !
 
 ---
 
